@@ -7,5 +7,5 @@
 <p align="center"> <sub>you can also call me eve or mae</sub> </p>
 <p align="center"> <sub>they/them or star/stars exclusively. no he/him or she/her, please!!</sub> </p>
 <p align="center"> <sub>18 yrs, audhd, nonbinary lesbian</sub> </p>
-<p align="center"> <sub>dni proship, nsfw, zoo/pedo</sub> </p>
+<p align="center"> <sub>dni proship, nsfw, zoo/pedo, radqueer (and anything affiliated)</sub> </p>
 
